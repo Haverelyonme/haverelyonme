@@ -7,9 +7,9 @@ I only know python for now 🥲
 # my social networks:
 
 • [Telegram](https://t.me/have_rely_on_me)
-• [github](https://discord.com/invite/gCARbKZz)
-• 
-••••••
+• [discord](https://discord.com/invite/gCARbKZz)
+• [GitHub](https://GitHub.com/haverelyonme)
+•
 
 
 
