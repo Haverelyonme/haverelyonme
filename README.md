@@ -6,7 +6,10 @@ I only know python for now 🥲
 
 # my social networks:
 
-! [Telegram](https://t.me/have_rely_on_me)
+• [Telegram](https://t.me/have_rely_on_me)
+• [github](https://discord.com/have_rely_on_me)
+• 
+••••••
 
 
 
