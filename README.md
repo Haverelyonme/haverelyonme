@@ -1,6 +1,6 @@
 # **about me**
 
-Hello, my name is _RU:_ **Степан**, I am currently 15 years old and I am just starting to develop in IT. I really like the topic of information security. 
+Hello, my name is _RU:_ Степан, I am currently 15 years old and I am just starting to develop in IT. I really like the topic of information security. 
 **Hello, nice to see you here!**
 
 🥲 let's start with the fact that 
