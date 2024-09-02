@@ -19,7 +19,7 @@ I only know python for now 🥲
 BITCOIN: bc1qku8xnjw5e7pqtus32va9mjamuhywlh4fl3hax9
 
 
-
+my Telegram channel: https://t.me/+_sYk4Ayj7lEyMzAy
 
 
 
