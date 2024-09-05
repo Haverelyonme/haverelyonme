@@ -11,7 +11,7 @@ I only know python for now 🥲
 • [GitHub](https://GitHub.com/haverelyonme)
 •
 
-#### my country: Russia(RU)
+#### my country: Russia (RU)
 #### my language: RU, EN
 
 ### DONAT
