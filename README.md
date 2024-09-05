@@ -2,8 +2,9 @@
 
 Hello, my name is _RU:_ Степан, I am currently 15 years old and I am just starting to develop in IT. I really like the topic of information security. 
 
-I only know python for now 🥲
-> Once I learn Python, I will take up other more complex and necessary languages in this area.
+I only know python for now 🥲 
+
+Once I learn Python, I will take up other more complex and necessary languages in this area.
 ## my social networks:
 
 • [Telegram](https://t.me/have_rely_on_me)
