@@ -20,7 +20,7 @@ Once I learn Python, I will take up other more complex and necessary languages i
 BITCOIN: bc1qku8xnjw5e7pqtus32va9mjamuhywlh4fl3hax9
 
 
-my Telegram channel: https://t.me/+_sYk4Ayj7lEyMzAy
+my Telegram channel: https://t.me/+JS0ouV8pZ300N2Y6
 
 
 
